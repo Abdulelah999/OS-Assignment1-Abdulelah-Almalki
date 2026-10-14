@@ -18,7 +18,7 @@
 
 ## 🎥 Video Link
 
-**Video Link**: [ضع رابط الفيديو هنا بعد رفعه على اليوتيوب أو قوقل درايف وتأكيد أنه عام]
+**Video Link**:[https://youtu.be/_dfu-xOqE_8?si=b18v4RPH0Tv1EUpJ]
 
 ---
 
